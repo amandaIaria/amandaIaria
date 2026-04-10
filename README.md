@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+Name's Alex, yes I know it says Amanda. I don't want to update the username if it'll break some things. 
+
+You can catch me on Bluesky as AntleredDoe.
+
+Did you know female deer aka does can grow Antleres if they have "too much" testosterone in their system. It's kind of simular to PCOS that happens in human afabs.
+
 <!--
 **amandaIaria/amandaIaria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
